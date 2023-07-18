@@ -8,7 +8,6 @@ The Productivity Challenge is not just another self-help book that promises quic
 
 Whether you're looking to boost your productivity at work, improve your study habits, or simply get more done in less time, The Productivity Challenge is an essential resource for anyone looking to optimize their performance and achieve their goals.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
