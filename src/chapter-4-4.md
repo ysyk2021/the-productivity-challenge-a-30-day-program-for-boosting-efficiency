@@ -1,4 +1,4 @@
-Chapter 12: Incorporating Physical Activity into Your Routine
+Incorporating Physical Activity into Your Routine
 =============================================================
 
 Physical activity plays a crucial role in boosting productivity and overall well-being. This chapter will explore the benefits of incorporating exercise into your daily routine and provide strategies for integrating physical activity effectively throughout your 30-day productivity challenge.

@@ -1,4 +1,4 @@
-Chapter 22: Identifying Tools That Improve Productivity
+Identifying Tools That Improve Productivity
 =======================================================
 
 In today's digital age, there is an abundance of tools available to help boost productivity and efficiency. This chapter will guide you through the process of identifying and selecting the right tools to optimize your workflow during "The Productivity Challenge: A 30-Day Program for Boosting Efficiency."

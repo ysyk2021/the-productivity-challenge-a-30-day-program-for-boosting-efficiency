@@ -1,4 +1,4 @@
-Chapter 11: Establishing Clear Expectations with Collaborators
+Establishing Clear Expectations with Collaborators
 ==============================================================
 
 Effective collaboration relies on clear and well-defined expectations. This chapter will guide you through the process of establishing clear expectations with your collaborators to enhance productivity, foster open communication, and achieve successful outcomes.

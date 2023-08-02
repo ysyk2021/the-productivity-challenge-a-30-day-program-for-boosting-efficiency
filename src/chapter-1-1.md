@@ -1,4 +1,4 @@
-Chapter 1: Defining Productivity and Its Importance in Achieving Success
+Defining Productivity and Its Importance in Achieving Success
 ========================================================================
 
 In this chapter, we will delve into the concept of productivity, understand its true meaning, and explore why it is crucial for achieving success in various aspects of life.

@@ -1,4 +1,4 @@
-Chapter 8: Using Feedback to Improve Collaboration
+Using Feedback to Improve Collaboration
 ==================================================
 
 Effective collaboration is essential for boosting productivity and efficiency. In this chapter, we will explore the power of feedback in enhancing collaboration within teams. By creating a feedback-rich culture, you can foster open communication, strengthen relationships, and continuously improve collaboration to achieve optimal results.

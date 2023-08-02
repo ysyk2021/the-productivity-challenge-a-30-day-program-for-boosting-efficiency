@@ -1,4 +1,4 @@
-Chapter 17: Developing Workflows That Optimize Tool Usage
+Developing Workflows That Optimize Tool Usage
 =========================================================
 
 In this chapter, we will explore the importance of developing workflows that optimize the usage of productivity tools. By aligning your tasks and processes with the capabilities of your tools, you can enhance efficiency and productivity.
