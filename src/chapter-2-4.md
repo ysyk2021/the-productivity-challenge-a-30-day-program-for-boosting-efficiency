@@ -78,4 +78,3 @@ Conclusion
 
 Creating a supportive environment is an important component of establishing a foundation for productivity. By removing distractions, organizing your workspace, creating a comfortable environment, encouraging positive habits, and seeking support from others, individuals can optimize their workflow for maximum efficiency and effectiveness. Remember, creating a supportive environment requires ongoing effort and attention, but with time and persistence, individuals can develop the habits and skills needed to achieve sustained success through a supportive work environment.
 
-
