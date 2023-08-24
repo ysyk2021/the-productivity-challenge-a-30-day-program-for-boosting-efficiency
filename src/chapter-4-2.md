@@ -1,5 +1,3 @@
-Identifying Habits That Drain Your Energy
-====================================================
 
 In order to boost efficiency and productivity, it is important to identify the habits that drain your energy. In this chapter, we will explore common habits that can zap your energy levels and provide strategies to overcome them. By recognizing and addressing these energy-draining habits, you can reclaim your vitality and optimize your productivity.
 

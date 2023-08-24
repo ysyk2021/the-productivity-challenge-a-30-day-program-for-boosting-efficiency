@@ -1,5 +1,3 @@
-Cultivating a Productive Mindset for Sustained Success
-====================================================================================================
 
 Sustaining productivity over time requires more than just implementing strategies and techniques. It requires cultivating a productive mindset that supports sustained success. In this chapter, we'll explore some strategies for cultivating a productive mindset.
 

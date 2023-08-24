@@ -1,5 +1,3 @@
-Introduction
-============
 
 Welcome to The Productivity Challenge, a 30-day program for boosting efficiency and achieving sustained success through effective productivity management.
 

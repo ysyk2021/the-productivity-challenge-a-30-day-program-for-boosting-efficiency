@@ -1,5 +1,3 @@
-Day 16-20: Optimizing Your Tools
-================================
 
 One of the biggest factors that contribute to our productivity is the tools and technology we use. In this chapter, we will explore how to evaluate and optimize your tools to boost efficiency.
 

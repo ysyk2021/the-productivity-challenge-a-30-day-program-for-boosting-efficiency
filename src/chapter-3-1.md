@@ -1,5 +1,3 @@
-Analyzing Your Workflow
-=============================================================
 
 Analyzing your workflow is an important component of streamlining your workflow and maximizing productivity. By breaking down tasks and identifying areas where changes could have the greatest impact on productivity, individuals can optimize their workflow for maximum efficiency and effectiveness.
 

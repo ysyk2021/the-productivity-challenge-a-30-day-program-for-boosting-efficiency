@@ -1,5 +1,3 @@
-Creating a Supportive Environment
-==================================================================
 
 Creating a supportive environment is an important component of establishing a foundation for productivity. In the first five days of The Productivity Challenge, we'll focus on creating a supportive environment to optimize productivity and efficiency.
 

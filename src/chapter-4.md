@@ -1,5 +1,3 @@
-Day 11-15: Maximizing Your Energy
-=================================
 
 Maximizing your energy is critical for maintaining productivity and achieving success. By managing energy levels effectively, individuals can accomplish more in less time and with greater efficiency.
 

@@ -1,5 +1,3 @@
-Identifying Opportunities for Collaboration
-=================================================================================
 
 Collaboration is a powerful way to boost productivity and efficiency. By working with others, individuals can leverage the strengths and resources of a team to accomplish goals more efficiently.
 

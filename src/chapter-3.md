@@ -1,5 +1,3 @@
-Day 6-10: Streamlining Your Workflow
-====================================
 
 Streamlining your workflow is an effective way to maximize productivity and efficiency. By analyzing your workflow, eliminating distractions and interruptions, automating tasks where possible, simplifying work processes, and focusing on one task at a time, individuals can optimize their workflow for maximum productivity.
 

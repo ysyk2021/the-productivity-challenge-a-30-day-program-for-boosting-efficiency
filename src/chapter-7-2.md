@@ -1,5 +1,3 @@
-Developing a Long-Term Plan for Maintaining Productivity Gains
-==========================================================================
 
 As you near the end of "The Productivity Challenge: A 30-Day Program for Boosting Efficiency," it's essential to develop a long-term plan that will help you sustain the productivity gains you have achieved. This chapter will guide you through the process of creating a roadmap for continued success beyond the initial 30-day program.
 

@@ -1,5 +1,3 @@
-Establishing a Productivity Mindset
-===============================================
 
 In order to boost efficiency and achieve optimal productivity, it is essential to cultivate a productivity mindset. This chapter will explore techniques and strategies to develop a mindset that supports productivity, focus, and effective goal attainment. By adopting a productivity mindset, you can overcome obstacles, maximize your potential, and thrive in your 30-day productivity challenge.
 

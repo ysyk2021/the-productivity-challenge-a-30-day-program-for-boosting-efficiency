@@ -1,5 +1,3 @@
-Evaluating Your Tools and Technology
-================================================
 
 In your pursuit of productivity, it's essential to regularly assess the tools and technology you use to support your efficiency. This chapter will guide you through the process of evaluating your productivity tools and selecting the most effective ones for your needs.
 

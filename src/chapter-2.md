@@ -1,5 +1,3 @@
-Day 1-5: Setting the Foundation
-===============================
 
 Setting a solid foundation is essential for achieving productivity and efficiency. In the first five days of The Productivity Challenge, we'll focus on establishing a strong foundation through assessing your current productivity level, identifying areas for improvement, establishing a productivity mindset, creating a supportive environment, and implementing time management techniques.
 

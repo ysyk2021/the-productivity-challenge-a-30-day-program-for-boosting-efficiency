@@ -1,5 +1,3 @@
-Focusing on One Task at a Time
-====================================================================
 
 Focusing on one task at a time is a powerful way to streamline workflow and boost productivity. By dedicating full attention to each task, individuals can minimize distractions, reduce errors, and accomplish goals more efficiently.
 

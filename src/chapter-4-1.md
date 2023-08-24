@@ -1,5 +1,3 @@
-Evaluating Your Energy Levels Throughout the Day
-===========================================================
 
 In order to maximize productivity and efficiency, it is important to understand and manage your energy levels throughout the day. This chapter will guide you through the process of evaluating your energy levels and leveraging that knowledge to optimize your daily tasks and activities.
 

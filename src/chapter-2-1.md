@@ -1,5 +1,3 @@
-Assessing Your Current Productivity Level
-==========================================================================
 
 Assessing your current productivity level is an essential step in establishing a foundation for productivity. In the first five days of The Productivity Challenge, we'll focus on assessing your current productivity level to identify areas where improvements could be made.
 
