@@ -40,3 +40,4 @@
   - [Cultivating a productive mindset for sustained success](chapter-7-4.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
